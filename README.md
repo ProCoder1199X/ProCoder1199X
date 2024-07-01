@@ -1,12 +1,12 @@
 - 👋 Hi, I’m @ProCoder1199X
 - 👀 I’m interested in programming
-- 🌱 I’m currently learning C++ , python and node.js
-- 💞️ I’m looking to collaborate on projects related to programming.
+- 🌱 I’m currently improving myself.
+- 💞️ I’m looking to collaborate on projects related to programming. 
 - 📫 My Email: dheeraj1018279@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I like programming
--  👌 I know HTML, scratch and C very well.
--  
+- 📞 WhatsApp : +91 9363625007 (MSG ONLY)
+- 👌 I'm expert in coding, gaming, ethical hacking, electronics stuff, and video editing.
+- 🤓 I know hacking , including phishing,SQL injection, Social Engineering, DDOS attacks, Brueforcing, etc.
 
 <!---
 ProCoder1199X/ProCoder1199X is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
