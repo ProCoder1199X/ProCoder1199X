@@ -1,5 +1,6 @@
 # 💫 About Me:
-⚡I'm Dheeraj Kumar, Founder and CEO @FuocoAutomobiles , @PulsewaveSoftware<br>✉️ email: dheeraj1018279@gmail.com<br>🌐 Website<br>❎ Twitter/X
+⚡I'm Dheeraj Kumar, Founder and CEO @FuocoAutomobiles , @PulsewaveSoftware
+
 
 
 ## 🌐 Socials:
