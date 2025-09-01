@@ -1,5 +1,5 @@
 # 💫 About Me:
-⚡I'm Dheeraj Kumar, Founder and CEO [FuocoAutomobiles](https://x.com/FuocoAutomobile) , [PulsewaveSoftware](https://x.com/PulswavSoftware)
+Founder and CEO of @QuarkAI-HQ
 
 
 
