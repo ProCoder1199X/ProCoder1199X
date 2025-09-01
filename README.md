@@ -1,5 +1,5 @@
 # 💫 About Me:
-Founder and CEO of @QuarkAI-HQ
+Founder and CEO of [Quark AI ](https://github.com/QuarkAI-HQ)
 
 
 
