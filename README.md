@@ -1,5 +1,6 @@
 # 💫 About Me:
-Founder and CEO of [Quark AI ](https://github.com/QuarkAI-HQ)
+
+I somehow like programming lol
 
 
 
