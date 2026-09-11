@@ -1,5 +1,5 @@
 # 💫 About Me:
-Founder and CEO  [Cavallo Enterprises](https://www.cavalloenterprises.in)
+Founder and CEO @  [Cavallo Enterprises](https://www.cavalloenterprises.in)
 
 
 ## 🌐 Socials:
